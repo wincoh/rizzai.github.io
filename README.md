@@ -1,0 +1,2 @@
+# rizzai.github.io
+rizz
